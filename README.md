@@ -1,3 +1,3 @@
 # Start1
 Hi
-my name is Svetlana and Im starting my new career in Cybersecurity. Very excited!
+My name is Svetlana and I'm starting my new career in Cybersecurity. Very excited!
